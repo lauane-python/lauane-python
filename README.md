@@ -1,5 +1,5 @@
 # Lauane Pasquini Ribeiro 
-### ⌛Idade: 16 anos  
+### ⌛Idade: 17 anos  
 ### 🔗LinkedIn: <https://www.linkedin.com/in/lauane-pasquine-813238370>
 ### 🐈GitHub/Portfolio: <https://github.com/lauane-python/janela.html.git> 
 ###  📌Presidente Prudente, São Paulo  
